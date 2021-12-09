@@ -1,6 +1,6 @@
 # Big Idea Final Project
 
-## Our team!
+## TEAM CLUBHOUSE!
 
 ### Members of the team are:
 ### 1. Chiamaka Daisy Okpara cdo13@pitt.edu
